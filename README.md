@@ -2,7 +2,7 @@
 
 ### ɴɪxᴀ ᴍᴜsɪᴄ+sᴘᴀᴍ ʙᴏᴛ ɪꜱ ᴀ ᴛᴇʟᴇɢʀᴀᴍ ᴘʀᴏᴊᴇᴄᴛ ʙᴀꜱᴇᴅ ᴏɴ ᴘʏʀᴏɢʀᴀᴍ ꜰᴏʀ ᴘʟᴀʏ ᴍᴜꜱɪᴄꜱ ɪɴ ᴠᴄ ᴄʜᴀᴛꜱ...
 
-<p align="center"><a href="https://t.me/TechQuard"><img src="https://te.legra.ph/file/084c206996897e2d42443.jpg" width="300"></a></p>
+<p align="center"><a href="https://t.me/TechQuard"><img src="https://te.legra.ph/file/63df2c0f463b6d0afc072.jpg" width="300"></a></p>
 <p align="center">
     🧪 ɢᴇᴛ sᴛʀɪɴɢ sᴇssɪᴏɴ ꜰʀᴏᴍ ʜᴇʀᴇ:
 
